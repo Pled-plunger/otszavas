@@ -1,1 +1,1 @@
-# otszavas
+# otszavas csinálom a fokot asszem talán
